@@ -15,4 +15,4 @@
 #### Social
 * [Facebook](https://facebook.com/partydjwoot)
 * [Twitter](https://twitter.com/partydj)
-* [Discord](https://discord.gg/plugdj)
+* [Discord](https://discord.gg/SfSMHHX)
